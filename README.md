@@ -7,7 +7,7 @@
 
 - 📫 How to reach me **gunduzsalimm@gmail.com**
 
-- 📄 Know about my experiences [https://drive.google.com/file/d/1rqVp00LqpYv37Uh9esVQpjtn4AiuvlTp/view?usp=sharing](https://drive.google.com/file/d/1rqVp00LqpYv37Uh9esVQpjtn4AiuvlTp/view?usp=sharing)
+- 📄 Know about my experiences [https://drive.google.com/file/d/1dkt3VhPFDOFrBG7CPvH_RrGbaGu72np9/view?usp=sharing](https://drive.google.com/file/d/1dkt3VhPFDOFrBG7CPvH_RrGbaGu72np9/view?usp=sharing)
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
